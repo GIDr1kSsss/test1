@@ -1,2 +1,2 @@
-# Strony internetiwe
+# Strony internetowe
 1
